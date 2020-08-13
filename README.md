@@ -1,2 +1,1 @@
-# zan4egpayne.github.io
- 
+#🐞 &copy; ZRCserver.tk, 2020. 
